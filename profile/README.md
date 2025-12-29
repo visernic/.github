@@ -27,6 +27,9 @@
     </a>
   </p>
 </div>
+<h1 align="center">
+<img align="center"  src="https://count.getloli.com/get/@:visernic?theme=booru-lewd" />
+</h1>
 
 ---
 
